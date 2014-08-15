@@ -1,4 +1,4 @@
 ulogic
 ======
 
-Micrologic Site
+uLogic DA, Moldova. Site.
